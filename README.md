@@ -1,2 +1,2 @@
 # Geekster-Weekly-Assignment-
-03 jan Assignment https://jadhavabhiee.github.io/03-assignment/  
+03 jan Assignment  https://jadhavabhiee.github.io/Asssignemt-03-jan/
